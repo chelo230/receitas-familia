@@ -1,4 +1,4 @@
-# Receita de Caneca
+# Receita de Bolo de Caneca
 
 
 
